@@ -1,0 +1,2 @@
+# QuranMajeed-Localizations
+ 
